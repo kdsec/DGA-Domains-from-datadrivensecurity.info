@@ -1,0 +1,1 @@
+# DGA-Domains-from-datadrivensecurity.info
